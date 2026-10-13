@@ -1,0 +1,2 @@
+# premium-daguerreotype-001-daguerreotype-process-silver
+Frustrated by cryptic manuals and overpriced workshops that never reveal the real daguerreotype secrets? This lab hands you the exact step-by-step to craft your own silver plate photo art.  This lab solves the core pain point of inaccessible historical techniques by distilling the daguerreotype process into a clear, repeatable workflow. You get the
